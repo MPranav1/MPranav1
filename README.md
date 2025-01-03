@@ -4,9 +4,9 @@
 <p align="left"> <a href="https://twitter.com/mpranav_m" target="blank"><img src="https://img.shields.io/twitter/follow/mpranav_m?logo=twitter&style=for-the-badge" alt="mpranav_m" /></a> </p>
 
 
-- 📫 How to reach me **maheshwari.pranav04@gmail.com**
+- 📫 How to reach me **mpranavmaheshwari@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Eu1WPSTAb7YWHeJilA_gSmqfoXGksACg/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1rU3xeftjlGFQvvscdg3g6Rlg3gKwJjhR/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
