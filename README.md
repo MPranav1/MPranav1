@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **mpranavmaheshwari@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1rU3xeftjlGFQvvscdg3g6Rlg3gKwJjhR/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Ut5a7ft6yaLcjx0y-FpAa4GR_mJH3uZs/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
